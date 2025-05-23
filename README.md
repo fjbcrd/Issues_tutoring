@@ -20,6 +20,6 @@
 - 正式站：https://tutoring.fjbcgroup.com/autoactivity
 
 #### 對外傳單
-- 正式站：
+- 正式站：似乎改為活動表單，沒有再用！！
 
 
